@@ -39,3 +39,7 @@
  [Monastery](https://www.youtube.com/watch?v=axF1HWTjAww)
 
  [Criss cross](https://www.youtube.com/watch?v=_0B4MVqHK1k)
+ 
+ [Reject](https://www.youtube.com/watch?v=8cqSd3T3YBk)
+
+ [Arm wave](https://www.youtube.com/watch?v=K2FFULkmC-g)
